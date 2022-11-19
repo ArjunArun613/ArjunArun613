@@ -1,6 +1,6 @@
 ### Hi there 👋 
-I'm Amith an undergraduate college student.
-DATA and WEB Enthusiast :zap:
+I'm Arjun an undergraduate college student.
+FSD and WEB Enthusiast :zap:
 
 <div align>
 

@@ -1,6 +1,6 @@
 ### Hi there 👋 
 I'm Arjun an undergraduate college student.
-FSD and WEB Enthusiast :zap:
+ a WEB Enthusiast :zap:
 
 <div align>
 
